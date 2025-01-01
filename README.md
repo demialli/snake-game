@@ -12,8 +12,8 @@ this was one of my fav projects to make tho and i keep coming back to it so i th
 
 it's very very simple ik but it would've been stupider if i'd continued with my original idea for it instead of just watching the walkthrough loll
 
-okay have fun
+okay have fun ^^
 
 idk how writing scores to the textfiles will work on here
 
-idrk how github works tbh but ehhhh we MOVEEE🤑🤑🤑👅
+acc idrk how github works tbh but ehhhh we MOVEEE🤑🤑🤑👅
